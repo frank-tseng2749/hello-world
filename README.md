@@ -15,7 +15,7 @@ Three of my favorite movies are
 ### Music
 
 Three of my favorite songs are
-1. Kyrie by Denver.
+1. Kyrie by Mr. Mister.
 2. Linger by The Cranberries.
 3. Moondance by Van Morrison.
 
